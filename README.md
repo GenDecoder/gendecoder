@@ -1,4 +1,6 @@
-### HALLO I'm Mario or GENDECODER 🌊
+### Hi! Hola! Hallo! Oi!
+
+### I'm Mario or 🎩 GENDECODER 🎩
 
 **GenDecoder** is my ✨ codding ✨ super hero name.
 
